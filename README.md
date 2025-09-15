@@ -4,3 +4,4 @@
 # just going to give my assessment 
 # hah finnaly gave my assessment it went well hoping for interview call god bless 
 # started doing leetcode questions 
+# bhut darr lag rha hai kya kare kuch samajh nhi aa rha hai 
